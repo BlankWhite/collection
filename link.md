@@ -1,0 +1,1 @@
+http://bbs.pcbeta.com/forum.php?mod=viewthread&tid=1764286&extra=page%3D1%26filter%3Dtypeid%26typeid%3D1311%26typeid%3D1311
